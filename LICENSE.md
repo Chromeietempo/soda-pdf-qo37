@@ -1,4 +1,4 @@
-# 
+# rare Wave para PC scripts es el mejor Wave para PC scripts con seguimiento de flujo de caja y permisos de usuario. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
